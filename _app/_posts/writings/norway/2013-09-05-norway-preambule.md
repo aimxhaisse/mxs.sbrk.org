@@ -67,7 +67,7 @@ Comme l'imbécile qui écrit ces lignes est le même que celui qui a pris
 les billets de train, on doit attendre trois heures à l'aéroport avant
 de sauter dans le train pour Dombås, du coup on essaye de trouver à
 manger pas cher mais c'est impossible. Le cours du paquet de chips
-atteint les 6 euros, un record mondial. On prend 9 "bolles" (des
+atteind les 6 euros, un record mondial. On prend 9 "bolles" (des
 choses rondes, sucrées, avec du chocolat et de la cannelle), c'est
 bon.
 
