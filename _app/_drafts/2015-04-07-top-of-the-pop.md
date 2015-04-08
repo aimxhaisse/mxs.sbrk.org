@@ -56,4 +56,31 @@ dans la neige. Ensuite on repart pour les dernières glissades, la
 neige laissant place à des prairies vertes, puis à un pierrer
 (évidemment là, plus de glissades), puis à un sentier cool qui
 surplombe un lac retenu par un barrage, à côté duquel se trouve à
-refuge où l'on se pose.
+refuge où l'on se pose. On décide de revoir notre itinéraire initial à
+la baisse car on est plus lents que prévus, que j'ai un genou pas très
+coopératif, qu'on est pas équipé pour la neige, et aussi car il y a
+une échelle de dessinée sur la carte et on a aucune idée de ce que
+cela peut vouloir dire même si on imagine que c'est pas gentil.
+
+Pendant ce temps, le refuge se fait ravitaller en bois via une sorte
+de télésiège à ravitallement, et un des saisonniers vient nous
+conseiller sur des chemins alternatifs, en nous demandant si on a des
+crampons pour la neige. On pense qu'il nous surestime, et qu'il ne
+nous a pas vu marcher avec nos gros sacs et nos allures
+d'éclopés. Finalement on décide de redescendre en altitude pour
+attraper un bus pour retourner à Valsavarenche (le point de départ),
+dans l'optique de se poser dans un camping et de faire des randonnées
+légères libre comme le vent sans sac à dos.
+
+Donc on descend vers le lac en traversant des nuages. En quelques
+minutes, on est en plein dedans et on ne voit plus au delà de 5
+mètres. Passé le barrage qu'on a pas vu, les nuages se dissipent pour
+laisser place à une route en lacets déserte, où un gang de bouc pas
+contents barre la route. On s'approche en pensant qu'il vont reculer
+comme des gros nuls, mais en fait non, ils restent stoïques, et vu
+qu'ils sont une quinzaine et qu'on est deux, on décide de couper les
+lacets en prenant un chemin difficile à travers rochers et pentes
+compliquées, comme des gros nazes (et ouais). Une fois la route
+retrouvée, je lève la tête et aperçois dans la brûme en haut une
+silhouette de bouc qui fait peur, en mode défi, genre, je continue de
+te voir petit looser.
