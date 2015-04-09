@@ -75,7 +75,7 @@ légères libre comme le vent sans sac à dos.
 Donc on descend vers le lac en traversant des nuages. En quelques
 minutes, on est en plein dedans et on ne voit plus au delà de 5
 mètres. Passé le barrage qu'on a pas vu, les nuages se dissipent pour
-laisser place à une route en lacets déserte, où un gang de bouc pas
+laisser place à une route en lacets déserte, où un gang de boucs pas
 contents barre la route. On s'approche en pensant qu'il vont reculer
 comme des gros nuls, mais en fait non, ils restent stoïques, et vu
 qu'ils sont une quinzaine et qu'on est deux, on décide de couper les
