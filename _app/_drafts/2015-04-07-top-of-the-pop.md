@@ -84,3 +84,34 @@ compliquées, comme des gros nazes (et ouais). Une fois la route
 retrouvée, je lève la tête et aperçois dans la brûme en haut une
 silhouette de bouc qui fait peur, en mode défi, genre, je continue de
 te voir petit looser.
+
+On croise un apiculteur qui récolte du miel (il a plusieurs ruches
+éparpillées dans la montagne), puis on traverse un village avec des
+troupeaux de chèvres et boucs. On a les pieds en feu, ça fait bizarre
+de marcher sur du goudron, et avec les chaussures trempées, ça fait
+plein d'ampoules qu'on ignore pour le moment. On passe plusieurs
+autres villages probablement de bergers car il y a plein de gros
+chiens qui font peur. À un moment on flippe car un gros chien aboie
+vers nous en courant, il a l'air aggressif mais il passe en mode tout
+gentil lorsque son maître lui dit d'arrêter.
+
+On recroise l'apiculteur un peu plus bas dans la vallée et il nous
+propose de nous accompagner en dehors de la vallée à bord de son
+fourgon, on met les sacs dans le coffre au milieu des panneaux de
+ruches et on prend la route. Il ne parle ni anglais, ni français, mais
+on arrive à se faire comprendre en casant tout les mots italiens qu'on
+connait et en mimant, c'est assez rigolo. Quand il a compris d'où on
+vient il nous félicite. On essaye de lui expliquer que là haut il y
+avait de la neige (on a essayé plein de combinaisons du peu de mots
+que l'on connaissait, genre 'acqua bianco') mais on y arrive pas. On
+une super vue sur la vallée et j'en profite de finir mon dictionnaire
+italien avec un 'Bellissimoooo!', qui amuse notre guide. Cette petite
+balade était bien amusante, merci Enrico!
+
+Il nous dépose à Locana où il y a des bus pour Celesore mais il est un
+peu tard, on ère un peu dans la ville avant de tomber sur une
+alimentation familliale ouverte. On rentre et MIRACLE, ils ont des
+brosses à dent! (Oui, depuis le début je me brossais les dents avec mes
+doigts). On achète de la gorgonzola (plein) et du saucisson (plein)
+et des chips (plein) et on tente tant bien que mal d'expliquer notre
+parcours sans grans succès.
